@@ -1,2 +1,0 @@
-# jorgeemt
- Mi repositorio personal
